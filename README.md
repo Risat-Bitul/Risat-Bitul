@@ -1,5 +1,5 @@
 #  W E L C O M E <img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/Hi.gif" width="30px">
-## 𝐇𝐈 "𝐑𝐁"         
+## 𝐇𝐈 "𝐑𝐁"  <img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/Hi.gif" width="30px">       
 (B A N G L A D E S H  🇧🇩 )👋  <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Earth.gif" width="24px">
  
 <p align="center"><a href="https://github.com/Risat-Bitul"><img src="https://j.top4top.io/p_1966skgw80.jpg" height='195' alt="Risat-Bitul">
