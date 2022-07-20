@@ -1,6 +1,6 @@
-#  W E L C O M E  TO MY GIYHUB <img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/Hi.gif" width="50px">
-## 𝐇𝐈 𝐢 𝐚𝐦 "𝐑𝐁"  <img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/Hi.gif" width="30px">       
-(B A N G L A D E S H  🇧🇩 )👋  <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Earth.gif" width="24px">
+#  W E L C O M E  TO MY GIYHUB <img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/Hi.gif" width="80px">
+## 𝐇𝐈 𝐢 𝐚𝐦 "𝐑𝐁"  <img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/Hi.gif" width="60px">       
+(B A N G L A D E S H  🇧🇩 )👋  <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Earth.gif" width="40px">
  
 <p align="center"><a href="https://github.com/Risat-Bitul"><img src="https://j.top4top.io/p_1966skgw80.jpg" height='195' alt="Risat-Bitul">
 <p align="center"><a href="https://chat.whatsapp.com/K3puFCsNzP45bIqQ6HYhLg"><img title="whatsapp" src="https://img.shields.io/badge/Whatsapp-black?style=for-the-badge&logo=whatsapp"></a>
