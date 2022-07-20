@@ -1,6 +1,6 @@
 ## <img src="https://emoj.ml/ablobattentionreverse.gif" width="50px"> WELLCOME <img src="https://emoj.ml/ablobattention.gif" width="50px">
 ## 𝐇𝐈 𝐢 𝐚𝐦 "𝐑𝐁"  <img src="https://emoj.ml/ablobcheer.gif" width="60px">
-## <img src="https://emoj.ml/ab1nzyblob2.gif" width="25px">𝗧𝘄𝗼 𝗔𝘂𝘁𝗵𝗼𝗿 𝗪𝗼𝗿𝗸 𝗜𝗻 𝗧𝗵𝗶𝘀 𝗚𝗶𝘁𝗵𝘂𝗯<img src="https://emoj.ml/apartyblob.gif" width="25px">
+## <img src="https://emoj.ml/apartyblob.gif" width="25px">𝗧𝘄𝗼 𝗔𝘂𝘁𝗵𝗼𝗿 𝗪𝗼𝗿𝗸 𝗜𝗻 𝗧𝗵𝗶𝘀 𝗚𝗶𝘁𝗵𝘂𝗯<img src="https://emoj.ml/apartyblob.gif" width="25px">
 ## 1: 𝚁𝚒𝚜𝚊𝚝 𝙸𝚂𝚃𝙸𝙰𝙺  <img src="Two people work on this Github" width="60px">     
 (B A N G L A D E S H  🇧🇩 )👋  <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Earth.gif" width="40px">
  
