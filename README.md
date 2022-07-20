@@ -1,6 +1,6 @@
 ## <img src="https://emoj.ml/ablobattentionreverse.gif" width="50px"> WELLCOME <img src="https://emoj.ml/ablobattention.gif" width="50px">
 ## 𝐇𝐈 𝐢 𝐚𝐦 "𝐑𝐁"  <img src="https://emoj.ml/ablobcheer.gif" width="60px">
-## 𝙃𝙚𝙧𝙚 𝙞𝙨 𝙩𝙬𝙤 𝘼𝙐𝙩𝙝𝙤𝙧 <img src="https://emoj.ml/apartyblob.gif" width="40px">      
+## <img src="https://emoj.ml/apartyblob.gif" width="60px">𝙃𝙚𝙧𝙚 𝙞𝙨 𝙩𝙬𝙤 𝘼𝙐𝙩𝙝𝙤𝙧 <img src="https://emoj.ml/apartyblob.gif" width="40px">      
 (B A N G L A D E S H  🇧🇩 )👋  <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Earth.gif" width="40px">
  
 <p align="center"><a href="https://github.com/Risat-Bitul"><img src="https://j.top4top.io/p_1966skgw80.jpg" height='195' alt="Risat-Bitul">
