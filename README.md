@@ -1,5 +1,7 @@
 ## <img src="https://emoj.ml/ablobattentionreverse.gif" width="50px"> WELLCOME <img src="https://emoj.ml/ablobattention.gif" width="50px">
-## 𝐇𝐈 𝐢 𝐚𝐦 "𝐑𝐁"  <img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/Hi.gif" width="60px">       
+## 𝐇𝐈 𝐢 𝐚𝐦 "𝐑𝐁"  <img src="https://emoj.ml/ablobcheer.gif" width="60px">
+
+𝙷𝚎𝚛𝚎 𝚒𝚜 𝚝𝚠𝚘 𝙰𝚞𝚝𝚑𝚘𝚛        
 (B A N G L A D E S H  🇧🇩 )👋  <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Earth.gif" width="40px">
  
 <p align="center"><a href="https://github.com/Risat-Bitul"><img src="https://j.top4top.io/p_1966skgw80.jpg" height='195' alt="Risat-Bitul">
