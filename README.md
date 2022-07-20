@@ -1,4 +1,4 @@
-#  W E L C O M E <img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/Partying Face.gif" width="30px">
+#  W E L C O M E <img src="https://raw.githubusercontent.com/iampavangandhi/iampavangandhi/master/gifs/PartyingFace.gif" width="30px">
 ## 𝐇𝐈 "𝐑𝐁"         
 (B A N G L A D E S H  🇧🇩 )👋  <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Earth.gif" width="24px">
  
