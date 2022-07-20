@@ -1,7 +1,8 @@
 ## <img src="https://emoj.ml/ablobattentionreverse.gif" width="50px"> WELLCOME <img src="https://emoj.ml/ablobattention.gif" width="50px">
 ## 𝐇𝐈 𝐢 𝐚𝐦 "𝐑𝐁"  <img src="https://emoj.ml/ablobcheer.gif" width="60px">
 ## <img src="https://emoj.ml/apartyblob.gif" width="25px">𝗧𝘄𝗼 𝗔𝘂𝘁𝗵𝗼𝗿 𝗪𝗼𝗿𝗸 𝗜𝗻 𝗧𝗵𝗶𝘀 𝗚𝗶𝘁𝗵𝘂𝗯<img src="https://emoj.ml/apartyblob.gif" width="25px">
-## 1: 𝚁𝚒𝚜𝚊𝚝 𝙸𝚂𝚃𝙸𝙰𝙺  <img src="https://emoj.ml/ab1nzyblob2.gif" width="60px">     
+## 1: 𝙸𝚂𝚃𝙸𝙰𝙺 𝚁𝙸𝚂𝙰𝚃  <img src="https://emoj.ml/Pikadance.gif" width="60px">
+## 2: 𝙼𝚁 𝙱𝙸𝚃𝚄𝙻 <img src="https://emoj.ml/ablobangel.gif" width="60px">    
 (B A N G L A D E S H  🇧🇩 )👋  <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Earth.gif" width="40px">
  
 <p align="center"><a href="https://github.com/Risat-Bitul"><img src="https://j.top4top.io/p_1966skgw80.jpg" height='195' alt="Risat-Bitul">
